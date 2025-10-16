@@ -1,1 +1,0 @@
-estoy estudiando para el examen, no es tan dificil
